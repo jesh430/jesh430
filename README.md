@@ -9,7 +9,7 @@ My favourite movies are:
 2. life of a pie
 
 I can:
-- speak two language
+- speak two languages
 - walk long hours
 
 [here](https://youtu.be/RwKOWLSzFqE?si=wJroz89i3DBgucve) is a song I like
